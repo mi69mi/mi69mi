@@ -9,7 +9,7 @@
 <p dir="auto"><a href="https://www.b5257afcd-c69a68eda5bbe-0556674ce0.online/" rel="nofollow">看片最新地址三 点击此处</a></p>
 <p dir="auto">看片提醒您请注意，永久地址一定要加https</p>
 <p dir="auto"><a href="https://www.mimipub.site/" rel="nofollow">网站最新地址发布网址 点击此处</a></p>
-<p dir="auto"><a href="https://github.com/mi69mi/mi69mi/blob/main/mimipubv3.0.apk" rel="nofollow">网站最新android app版本发布 点击此处</a></p>
+<p dir="auto"><a href="https://github.com/mi69mi/mi69mi/blob/a21b0ae34ee469e7916c65421e336241421763a0/mimipubv3.0.apk" rel="nofollow">网站最新android app版本发布 点击此处</a></p>
 <p dir="auto">喜欢的朋友 请顺手保存</p>
 </article>
 </div>
