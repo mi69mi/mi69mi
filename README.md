@@ -4,7 +4,7 @@
 </a>AV咪咪岛 - 最新地址 页</h1>
 <p dir="auto">请收藏此页面（重要）
 看片站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，回家不迷路</p>
-<p dir="auto"><a href="https://www.mipubav.xyz/" rel="nofollow">看片最新地址一 点击此处</a></p>
+<p dir="auto"><a href="https://www.mimihua.xyz/" rel="nofollow">看片最新地址一 点击此处</a></p>
 <p dir="auto"><a href="https://www.mimiporn.com/" rel="nofollow">看片最新地址二 点击此处</a></p>
 <p dir="auto"><a href="https://www.b5257afcd-c69a68eda5bbe-0556674ce0.online/" rel="nofollow">看片最新地址三 点击此处</a></p>
 <p dir="auto"><a href="https://www.minipub.xyz/" rel="nofollow">看片最新地址四 点击此处</a></p>
